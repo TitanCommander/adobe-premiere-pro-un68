@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for PC | Adobe Premiere Pro for Windows secure Script: video-stabilization & batch-processing is the best Adobe Premiere Pro for PC | Adobe Premiere Pro for
 
 
 
